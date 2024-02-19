@@ -1,0 +1,1 @@
+https://file.notion.so/f/f/6fae2e0f-dedc-48e9-bc59-af2654c78209/4d0cd4de-6f40-4eb5-91ba-2e28be7d4062/Annotated_Notes_4.pdf?id=411fbb9c-b445-4547-8c77-09690eab2092&table=block&spaceId=6fae2e0f-dedc-48e9-bc59-af2654c78209&expirationTimestamp=1708185600000&signature=3BIdyl6lm3pwU4YIvQlQUuzQLX_2xptdf75dFywq5tk&downloadName=Annotated+Notes+4.pdf
